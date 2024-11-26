@@ -5,6 +5,7 @@ it's me Maria Eduarda
 - 🍄 cry baby
   
 - I jus't a girl
+- My lilf is purple 
   
  
   💜 "Well, sometimes I feel like I don't wanna be where I am

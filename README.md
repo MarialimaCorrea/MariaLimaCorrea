@@ -1,11 +1,15 @@
 it's me Maria Eduarda
 
 - 🌙interesses: musica, teatro, filmes, novos idiomas(faço duolingo, ofensiva de +500 dias) e cultura pop.
+
+  --- Você pode entrar em contato comigo por ⁚ maria.correa.lima24@escola.pr.gov.br(email), Eduarda.lima.s2 (Duolingo) e maria._.eduarda_s2(instagram).
   
 - 🍄 cry baby
   
-- I jus't a girl
-- My lilf is purple 
+- I just a girl ⁚)
+
+- My life is purple....
+- 
   
  
   💜 "Well, sometimes I feel like I don't wanna be where I am

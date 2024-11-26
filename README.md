@@ -11,8 +11,7 @@ it's me Maria Eduarda
 Gettin' drunk at a club with my fair-weather friends
 Push away all the people who know me the best
 But it's me who's been making the bed"
-
-  Olivia Rodrigo.
+          Olivia Rodrigo.
 -  
 
 ![](https://media1.tenor.com/m/wzwkN234ne0AAAAC/melanie-martinez.gif)

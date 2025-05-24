@@ -17,7 +17,7 @@ Gettin' drunk at a club with my fair-weather friends
 Push away all the people who know me the best
 But it's me who's been making the bed". By Olivia Rodrigo. 💜
 
-[MM](https://youtu.be/Nhx9QDuqpDM?si=8URrBleK_2BV3Umt)
+[DEATH](https://youtu.be/Nhx9QDuqpDM?si=8URrBleK_2BV3Umt)
 
 
 ![](https://media1.tenor.com/m/wzwkN234ne0AAAAC/melanie-martinez.gif)
